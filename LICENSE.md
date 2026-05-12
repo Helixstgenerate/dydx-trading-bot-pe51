@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with vip dydx trading bot Utility | token-launch-monitoring + sniper-trades, the #1 dydx trading bot. Includes token-launch-monitoring and sniper-trades for a
 
 
 
